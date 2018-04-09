@@ -18,6 +18,8 @@
 ![](https://sun9-6.userapi.com/c840529/v840529453/6df61/mcau3dIl7gY.jpg)
 Вывод: оба глагола могут употребляться со следующими дополнениями: implication, importance, significance, etc.)
 Следующие дополнения употребляются только с глаголом "understand":language, nature, word.
+
+
 Бонусное задание:
 ![](https://pp.userapi.com/c846218/v846218588/1f0ed/gvNadvMAd_s.jpg)
 ![](https://pp.userapi.com/c846218/v846218588/1f0f7/qj9XxQWo2bI.jpg)
