@@ -8,11 +8,13 @@
 Вывод: слово airplane действительно чаще встречается в американском английском, нежели в британском. 
 
 
-Вторая часть задания. (Scetch Engine)
-1)
+Вторая часть задания. (Sketch Engine)
+
+ 1)
 ![](https://sun9-1.userapi.com/c840529/v840529453/6df27/ZdojkfoZPZw.jpg)
 ![](https://sun9-6.userapi.com/c840529/v840529453/6df2e/jUmn_0_HOY4.jpg)
-2)
+
+ 2)
 ![](https://sun9-6.userapi.com/c840529/v840529453/6df61/mcau3dIl7gY.jpg)
 Вывод: оба глагола могут употребляться со следующими дополнениями: implication, importance, significance, etc.)
 Следующие дополнения употребляются только с глаголом "understand":language, nature, word.
