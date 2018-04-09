@@ -19,4 +19,4 @@
 Бонусное задание:
 ![](https://pp.userapi.com/c846218/v846218588/1f0ed/gvNadvMAd_s.jpg)
 ![](https://pp.userapi.com/c846218/v846218588/1f0ed/gvNadvMAd_s.jpg)
-Вывод: 
+Вывод:
